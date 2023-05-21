@@ -1,2 +1,2 @@
-# Turkana-Facilities-Infrasture-Full-extend
+# Turkana-Facilities-Infrasture-Full-extent
 Schools
